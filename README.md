@@ -4,3 +4,4 @@ if Bitcoin is a good opportunity to invest from the viewpoint of risk, effective
 
 If you want to see the full version click the link below:
 
+http://rpubs.com/jakub1203/884149
